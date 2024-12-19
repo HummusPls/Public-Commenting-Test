@@ -1,3 +1,5 @@
+![Picture of ABBA](images/dancing-queen.png)
+
 [Dancing Queen Instrumental](https://www.youtube.com/watch?v=nSsRbv7ockI)
 
 Opening:  
